@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUGN920610MCHRTN07
+CUGN920610MCHRTN07
